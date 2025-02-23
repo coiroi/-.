@@ -4,3 +4,5 @@
 𐔌 pony town.
 
 c + h freely !!  I'm mostly in bsd, i move into ppt + sprunki area
+
+idrm getting unfriended,, still see u as a friend despite ignoring u..sjghs 
